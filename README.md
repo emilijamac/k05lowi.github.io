@@ -4,3 +4,6 @@ start
 1. Beauty is only skin deep
 2. Join the Amy Sholer school of philosophy
 **Even experts in Refine were once beginners**
+<a href="http://www.youtube.com/watch?feature=player_embedded&v=dDKbdiUy4n8
+" target="_blank"><img src="http://img.youtube.com/vi/dDKbdiUy4n8/0.jpg"
+alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
